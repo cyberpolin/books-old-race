@@ -1,2 +1,23 @@
 # books-old-race
 coming back home
+
+
+## Capitulo 1
+
+azoto su mano con gran fuerza sobre los controles centrales haciendo que coincideran sus tres dedos en una interfas diseñada para esa modificación. El resto de su brazo era normal, pero esa mano habia sido diseñada especificamente para capitanes con esa experiencia.
+
+Solo habia tres capitanes en toda la flota con ese rango, y todos habian sido modificados geneticamente con una mano de tres dedos, servia tanto para operar dispositivos de la flota como para identificarse como capitanes de la triada. La mano era mas grande en relacion al brazo, la piel pasaba del color regular en el antebrazo a un colo rojizo, y agrietada, se podian ver surcos profundos. Los dedos eran equidistantes y todos parecian una especie de pulgar.
+
+Todos los capitanes de la triada recibian entrenamiento especial para el uso de la mano como herramienta incluso como arma, asi que cuando coneill azoto la suya contra la consola central de la nave, todo en la habitación sintieron miedo.
+
+Coneill era un espiritu justo pero iracundo y muy testarudo, habia entrado a la flota imperial desde los doce ciclos, era apenas un infante pero la pobresa lo habia endurecido, no recordaba a su padre y el unico recuerdo de su madre era un implante neuronal que no sabia quien le habia puesto, pero era un recurso al que acudia con frecuencia. En las barracas de la flota lo usaban como mandadero y mascota de los aspirantes a navegantes. Aunque eso de usarlo como mascota duro muy poco tiempo. Hacia solo medio ciclo que el capataz lo habia llevado a las barracas, cuando un grupo de aspirantes decidio celebrar a sus costillas.
+
+Eran 4 jovenes adultos de al menos 1.90 ya que esa era la menor altura exigida en las barracas, habian casi concluido su entrenamiento y los liberaron por 48 horas antes de sus examen final. Ser navegante en el imperio era una posicion privilegiada a la cual accedian solamente individuos con una superioridad genetica, ademas era de acceso solo para los primogenitos de familias poderosas en el imperio. Grandes cuerpos, grandes mentes y grandes egos.
+
+Cuando vieron a Coneill recogiendo la basura con tal elegancia lo supieron, no fue necesario que siquiera se voltearan a ver asi que lo rodearon y el lider de ellos pateo el bote con la basura, lo que enseguida enfurecio a Coneill, lo que sucedio a continuacion fue muy rapido e increible. Como si de coreografia se tratase en cuando el primero pateo el bote Coneil deslizo la escoba por su mano derecha que impacto en la mejilla de su oponente, al tiempo que lanzaba tierra a quien estaba tras el. Los otros dos no fueron mayor problema, pero le tomo mas tiempo, a su siniestra estaba el mas alto de todos, asi que inicio con el, usando la pierna de su contrincante como trampolin se impulso a la cara del mismo y lo tomo de los cabellos mientras caia por detras de el, lo que resulto en una nube de polvo y un sonido hueco al impactarlo contra el suelo. Quedo entonces de frente con el mas violento de los 4.
+
+El polvo era denso y Coneil era un infante de apenas 1.40, asi que no era muy facil verlo en ese momento, Gofis, el ultimo de los 4 se lanzo sobre una sombra que apenas alcanzo a ver, uso toda su fuerza, y estaba preparado a embestir a Coneil y enterrarlo en el patio. Coneill tomo con sus dos manos el asidero del bote y en un movimiento que requirio de todas sus fuerzas abrio ambos brazos, saco el pecho y contrajo desde el pecho hasta la espalda, cerrando ambos brazos, haciendo asi que el bote impactara en la frente dr Gofis. Ambos cayeron noqueados.
+
+Cuando la nube de polvo se aclaro Gofis estaba boca abajo y se podia ver sangre que salia de su frente, de Coneil no habia rastro. el capataz vio todo desde el observatorio, donde pasaba la mayor parte de su dia, asi que ordeno a los intendentes llevar a los 4 aspirantes a enfermeria, no habia sido nada grave mas que un par de moretones y el ego destrozado, pero para Gofis era diferente. Cuando volvio en si, lo desperto un calor que provenia de la base de su nariz, en un principio fue reconfrontante, pero con forme se hacia conciente, el olor a oxico de la sangre y la misma escurriendo le indicaron la gravedad de su herida. Al incorporarse noto que Coneil estaba bajo de el cubierto en polvo y que trataba de empujarlo aun con rabia, asi que se quito de inmediato y recibio un puñetazo justo abajo de la quijada, casi en el cuello. Fue entonces cuando los separaron y se llevaron a Gofi a la enfermeria.
+
+En ese momento el capataz promovio a Coneil como aspirante provisional y fue el primer infante en entrar a las barracas en 200 años de historia
